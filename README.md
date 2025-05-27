@@ -1,0 +1,1 @@
+# EGOI-2025-felk-sz-t-megold-sok
